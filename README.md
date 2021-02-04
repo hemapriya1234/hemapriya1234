@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with github 
 - 💬 Ask me about sports
 - 📫 How to reach me:hemabharatala5@gmail.com 
-- 😄 Active😀😀 
+- 😄 Active😀 
 - ⚡ Fun fact:
 
